@@ -5,7 +5,7 @@ Sure
 
 Signature:
 
-![](Lol_Hunter_Ugandan_Knucles.png)
+![](Lol_Hunter_Ugandan_Knuckles.png)
 
 ### Pointless List
 * Orange
